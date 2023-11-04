@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @tematvshow
+- 👋 Hi, I’m @tema_slow
 - and im common human
 - RU
-- 👋 Привет, я @tematvshow
+- 👋 Привет, я @tema_slow
 - и я обычный человек
